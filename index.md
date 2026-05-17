@@ -1,80 +1,80 @@
 ---
-我们想要记录的事情，是天上的意志如何在大地上拥有了形态。啊，天上之神，这些创造都是你们的作为。那就请你们启发我的神智，让我源源不断地记录。
+What we wish to record is the tale of how heaven's will took shape on the earth below. O heavenly gods, these creations are your works. Grant us divine wisdom — let us endlessly record!
 
-【鸽子衔枝之年】
-天上永恒的王座到来，世界为之焕然一新。然后真王，原初的那一位开始和旧世界的主人们，七位恐怖大王开战。那恐怖的大王们是龙。
-原初的那一位造出了自己发着光的影子。而影子的数量是四。
+"When the Doves Held Branches"
+When the eternal throne of the heavens came, the world was made anew. Then the true lord, the Primordial One, came forth and did battle against the seven terrifying sovereigns, dragon-lords of the old world.
+The Primordial One created shining shades of itself, and the number of these shades was four.
 
-【法涅斯，或者原初的那一位】
-原初的那一位，或许是法涅斯。它生着羽翼，头戴王冠，从蛋中出生，难以分辨雌雄。但是世界如果要被创造，蛋壳必须被打破。法涅斯——原初的那一位——却用蛋壳隔绝了「宇宙」和「世界的缩影」。
+"On Phanes, or The Primordial One"
+The Primordial One may have been Phanes. It had wings and a crown, and was birthed from an egg, androgynous in nature. But for the world to be created, the egg's shell had to be broken. However, Phanes, the Primordial One, used the eggshell to separate the "universe" and the "microcosm of the world."
 
-【衔枝后四十余年】
-四十个冬天埋葬了火，四十个夏天沸腾了海。七位大王全部被打败，七个王国全部对天上俯首称臣。原初的那一位大王开始了天地的创造。为了「我们」——它最可怜的人儿将出现在这片大地。
+"Forty Years After the Held Branches"
+Forty winters entombed the flames, and forty summers churned the seas. The Seven Sovereigns were vanquished, and the seven nations submitted to the heavens. The Primordial One, the great sovereign, began the creation of heaven and earth for "our" sake — that of its creations which it cherished most, who would soon appear upon this earth.
 
-…
+...
 
-【衔枝的四百余年】
-山川与河流落成，大海和大洋接纳了反叛者和不从者。原初的那一位和一位影子制造出了飞鸟、走兽和水鱼。它们还一起制造出了花草和树木。最后它们造出了人。我们的先祖的数目不可知晓。
-自此时起，我们先祖和原初的那一位立约。纪年也更迭一新。
+"Four Hundred Years After the Held Branches"
+The mountains and rivers were made, and the seas and oceans accepted those who rebelled and those who would not kneel. The Primordial One and one of its shades created the birds of the air, the beasts of the earth, and the fish of the sea. Together, they also created flowers, grass, and trees, before finally creating humans — our ancestors, numerous as the stars in the sky, uncountable as the sand on the shore.
+From that time, our ancestors made a covenant with the Primordial One, and so entered into a new age.
 
-【箱舟开门之年】
-原初的那一位对人有一套神圣的规划。人只要幸福，它便欢欣。
+"The Year of the Ark's Opening"
+The Primordial One had a sacred plan for humans. As long as they were happy, it too rejoiced.
 
-【箱舟开门的次年】
-人们耕耘，第一次收获。人们开掘，第一次收获贵金。人们聚集，第一次写就诗歌。
+"The Year After the Ark's Opening"
+The people worked the land, and so came the first harvest. The people mined, and so reaped the first crop of precious ore. The people gathered, and the first poems were written.
 
-【狂欢节之年】
-如果有饥馑，天上就落下食物与甘霖。如果有贫瘠，那大地就会生出矿藏。如果有忧郁蔓延，那么高天就会以声音回应。
-唯一的禁止之事，就是输给诱惑。但是诱惑的通道已经被封堵。
+"The Year of Jubilee"
+If there was hunger, the heavens would bring down food and rain. If there was poverty, the earth would bring forth its riches. If melancholy were to spread, the heavens would reply with their voices.
+The one taboo was to succumb to temptation. But the path to temptation had already been sealed.
 
-…
+...
 
-【葬火之年】
-天上的第二个王座到来，仿佛创世之初的大战再开。那一天，天也倾颓，地也崩裂。我们海渊之民的先祖，和他们世代栖居的土地，落入了此处。
-黑暗的年代由此开始。
+"The Funerary Year"
+The second throne of the heavens came, and war was rekindled, as it was in the world's creation. That day, the heavens collapsed and the earth was rent asunder. Our ancestors and their ancestral land fell into this place during that conflict.
+The era of darkness had begun.
 
-【黑暗的元年】
-七位大王的子民被海接纳，深海的龙嗣曾经统治这里。我们的先祖与它们发生了征战。
-先祖使用千灯将它们逐入影子，它们则在影子里狩猎人类。此处唯有黑暗，所以无处不是它们的猎场。
-人们的祈祷汇成哀歌，原初的那一位和其他三位发光的影子并不能听见。
+"The First Year of Darkness"
+The people of the Seven Sovereigns had found refuge in the oceans, and the Dragonheirs of the Depths ruled this particular place, which led to war between them and our ancestors.
+Our ancestors chased them into the shadows with the light of a thousand lanterns, and they hid in those shadows, hunting us. But there was only darkness in this place, and so their hunting grounds were untrammeled.
+The prayers of the people turned into lamentations, but the Primordial One and its three other shining shades could not hear.
 
-【太阳的比喻】
-黑暗的洞窟里，有一群未曾见过光的人们在生活。有一位见过太阳的贤人，对着洞窟的众人描绘着光之下的生活与太阳的伟大。他见众人无法理解，于是点起了火。人们于是开始崇拜火，以为这个是太阳，甚至开始习惯了黑暗与火光的生活。
-贤人死后，有人霸占了火，通过火，投下了自己巨大的影子。
+"The Parable of the Sun"
+In a dark cavern, there lived a group of people who had never seen the light. Among them was a sage who had once seen the sun, and he told the gathered folk about what life under the sun was like, and about the great might of the sun. Seeing that they did not comprehend, he lit a torch — and thus did people come to worship the flame, believing it to be the sun. They even got used to a life of darkness and fire.
+When the sage died, someone would monopolize the flame. Using it, they would cast a long shadow over the land.
 
-【忘忧莲的比喻】
-看见就会忘记忧愁的莲花。在漫长的旅行中，寻找归途的船长遇到了一群以这种莲花为食的人。有的人留下了，有的人抗拒了这种诱惑。
-活着就是无尽的苦海。我们只是在寻找归途。
+"The Parable of the Lethied Lotus"
+A lotus that causes all who look upon it to forget their troubles. A ship captain searching for the way back to the surface discovered a tribe of people who ate these lotuses. Some crew members stayed in that place. Others rejected that temptation.
+Life is a boundless ocean of suffering. We are only searching for the way home.
 
-【黑暗的第三年】
-唯一没有抛弃我们的那一位，她乃是「时间之执政」。她是时刻，是无时不刻，是千风与日月之度量。她是一切欢欣之时，一切愤怒之时，一切渴望之时，一切迷狂之时。她是一切谵妄的时刻。
-我们称呼她「卡伊洛斯」，或者「不变世界的统领与执政」。真正秘密的名字，我们不敢直言，所以在这里倒写。「露塔斯伊」——我仅提一次。
+"The Third Year of Darkness"
+We knew the only one who had not forsaken us as the "Ruler of Time." She was the moment. She was every moment. She was the measure of a thousand winds and the sun and the moon. She was every second of joy, every moment of rage, every instant of longing, every minute of obsession. She was every flash of delirium.
+We call her Kairos, or "the ruler of the unchanging world." We dare not speak her true, secret name, and so I pen it here, only once, and in reverse: "Htoratsi."
 
-…
+...
 
-【目盲之年】
-贤人阿布拉克他被开启了神智，他展示了从手中发出光的奇迹。先祖们以他为首领，开始建设「赫利俄斯」。
+"The Year of Blindness"
+The sage Abrax's wisdom was awakened, and he unveiled a light-bringing miracle from within his hands. So our ancestors began to build the Helios, with him as their leader.
 
-…
+...
 
-【目明之年，或日月的元年】
-「赫利俄斯」——太阳的神车，终于落成。白夜到来，常夜消散。
-日月的纪年开始了。
+"The Year of Sight, or the First Year of Sun and Moon"
+Helios, the divine chariot of the sun, was finally completed. The Whitenight came, and Evernight was banished.
+The years of the Sun and Moon had begun.
 
-【日月的二年】
-先祖们尝试寻找归途。地表的大战应该已经结束。
-但是原初的那一位，第一个王座，布下了禁令。先祖们无法找到归家之路。
-既然是如此，那原初的那一位，应该打败了后来的第二位吧。
-阿布拉克被太阳之子下令囚禁。
+"The Second Year of Sun and Moon"
+Our ancestors sought the returning way, for surely the war on the surface had ended by then.
+But the Primordial One, the first throne, had laid down a ban, preventing our ancestors from finding the path home.
+In that case, the Primordial One must have defeated the Second Who Came.
+Abrax was imprisoned by order of the Sunchild.
 
-【树的比喻】
-王的园丁与御园的树精相爱。但是国王想要新修凉亭的雕梁，需要砍伐最有灵气的那一棵灵木。国王是原初的那位之化身，因此园丁无法违逆万王之王，唯有对着国王的祭司祈祷。祭司乃是常世大神的化身。
-祭司怜悯园丁，于是说，你去折下灵树的枝条吧。园丁便去折枝，然后听从国王的命令砍伐了灵木。
-随后祭司说，你去种下灵木的枝吧。园丁说，灵木长成，需要五百年。祭司说，一念则千劫尽。于是园丁在自家后院种下了树枝。结果一瞬间，细枝长成了新树，那新树精是曾经树精的延续。
-因为那时刻之神，可以把「种子」的「这一刻」带到过去与未来。
+"The Parable of the Tree"
+The king's gardener and the tree spirit of the royal garden were in love. But the king wished to repair the beams of his pavilion, and so needed to cut down the tree with the most spiritual energy within it. The king was the incarnation of the Primordial One, and the gardener could not defy the sovereign of sovereigns, and so he could only bring his plea to the king's priest, who was the incarnation of Tokoyo Ookami.
+The priest had pity on the gardener and said to him: "Go, and cut the branches of the spirit-tree down." The gardener did so, and afterward did as the king ordered, cutting the spirit-tree itself down.
+Then the priest said: "Plant the spirit-tree's branches in the ground." But the gardener said: "A spirit-tree shall take five hundred years to grow." The priest said: "Your one thought shall echo through eternity." And so the gardener planted the branches in his back yard. In an instant, the slim branches grow into a new tree, and the new tree spirit was a continuation of the past one.
+For it is the God of Moments who is able to take "seeds" from this "moment" into the past and the future.
 
-【日月之十年】
-阿布拉克故去已久。日月之前的事情已经记录得足够。若无把一切按事实记写的胆量，哪里能成为常世大神的书记呢？
-我听到了门外盔甲的声音，我于此绝笔。
+The Tenth Year of Sun and Moon
+Abrax is long gone. The events before the sun and the moon have been recorded sufficiently. Well, if I did not dare to write things down just as they happened, how could I consider myself a scribe of Tokoyo Ookami?
+Hark, I hear armor without. Here, I shall stop writing.
 
 ---
