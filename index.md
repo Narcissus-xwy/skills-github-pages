@@ -1,4 +1,6 @@
 ---
+
+---
 What we wish to record is the tale of how heaven's will took shape on the earth below. O heavenly gods, these creations are your works. Grant us divine wisdom — let us endlessly record!
 
 "When the Doves Held Branches"
@@ -77,4 +79,3 @@ The Tenth Year of Sun and Moon
 Abrax is long gone. The events before the sun and the moon have been recorded sufficiently. Well, if I did not dare to write things down just as they happened, how could I consider myself a scribe of Tokoyo Ookami?
 Hark, I hear armor without. Here, I shall stop writing.
 
----
